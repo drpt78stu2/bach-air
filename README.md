@@ -4,7 +4,7 @@ Instrument #1: [Stjepan Hauser](https://grokipedia.com/page/Stjepan_Hauser)
 
 Main singers: [Dara Rolins](https://grokipedia.com/page/Dara_Rolins), [Kelly Clarkson](https://grokipedia.com/page/Kelly_Clarkson), [David Archuletta](https://grokipedia.com/page/David_Archuleta)
 
-Music arrangements and background vocals: [Filip Orator](https://www.youtube.com/watch?v=u5_Rh-w4LjE)
+Music arrangements and background vocals: [Filip Orator](https://www.youtube.com/watch?v=u5_Rh-w4LjE) from band [Ears](https://www.discogs.com/artist/2136757-Ears-3)
 
 ![foursome++](./musicians/Screenshot_2026-06-09-22-07-22_1920x1080.png)
 
