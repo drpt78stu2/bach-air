@@ -6,6 +6,8 @@ Main singers: [Dara Rolins](https://grokipedia.com/page/Dara_Rolins), [Kelly Cla
 
 Music arrangements and background vocals: [Filip Orator](https://www.youtube.com/watch?v=u5_Rh-w4LjE)
 
+![foursome++](./musicians/Screenshot_2026-06-09-22-07-22_1920x1080.png)
+
 Lyrics: [Peter Taraba](https://orcid.org/0000-0002-8199-3723) or ?
 
 Oh, what a world we live in ...
