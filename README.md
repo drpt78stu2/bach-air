@@ -26,7 +26,7 @@ Sun still shining through a grayish blue hue
 
 Stars still rising up with the night, our only truth
 
-The air we breathe is mildly put a shit-take
+The air we breathe is, to put it mildly, a nasty smoke
 
 Filled with human filth, a poison in our verse
 
