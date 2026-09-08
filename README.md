@@ -53,3 +53,5 @@ Fuck this all
 [First AI attempt](https://www.mureka.ai/song-detail/SZ1d8mBgYoK3iyTjgGMcmB?is_from_share=1) Rating 9 out of 10 by P.T.
 
 [Second AI attempt](https://suno.com/s/wNoEHSPvfkqdL4Yr) Rating 6 out of 10 by P.T.
+
+[Third AI attempt](https://makebestmusic.com/s/uDDT2BQb?pid=invite&source=makebestmusic) Rating 9 out of 10 by [Dr. Wrinkle](https://en.wikipedia.org/wiki/Richard_Feynman)
