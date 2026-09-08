@@ -8,29 +8,37 @@ Music arrangements and background vocals: [Filip Orator](https://www.youtube.com
 
 ![foursome++](./musicians/Screenshot_2026-06-09-22-07-22_1920x1080.png)
 
-Lyrics: [Peter Taraba](https://orcid.org/0000-0002-8199-3723) or ?
+Lyrics:
 
-Oh, what a world we live in ...
+## verse
 
-Oh, what a world we live in ...
+Oh what a world we live in with a bitter turn
 
-Oh, what a world we live in ...
+Oh what a world we live in by a broken hymn
 
-Oh, what a world we live in ...
+Oh what a world we live in or a sinking bin?
 
+Oh what a world we live is just a dying grin
+
+## pre-chorus
+
+Sun still shining through a grayish blue hue
+
+Stars still rising up with the night, our only truth
+
+The air we breathe is mildly put a shit-take
+
+Filled with human filth, a poison in our verse
+
+## chorus
+
+Fuck this all, a bitter fall
+
+Fuck this all, a poor choice
+
+Oh the cancer grows in all we know
 
 Fuck this all
-
-Fuck this all
-
-Oh
-
-
-
-
-Sun still shining through
-
-Stars still rising up with the night
 
 
 
