@@ -42,8 +42,10 @@ And one more time, just fuck it all
 
 # A.I. attempts
 
-[First AI attempt](https://www.mureka.ai/song-detail/SZ1d8mBgYoK3iyTjgGMcmB?is_from_share=1) Rating 9 out of 10 by P.T.
+[First AI attempt](https://www.mureka.ai/song-detail/SZ1d8mBgYoK3iyTjgGMcmB?is_from_share=1) Rating 8 out of 10 by P.T.
 
-[Second AI attempt](https://suno.com/s/wNoEHSPvfkqdL4Yr) Rating 6 out of 10 by P.T.
+[Second AI attempt](https://suno.com/s/wNoEHSPvfkqdL4Yr) Rating 4 out of 10 by P.T.
 
-[Third AI attempt](https://makebestmusic.com/s/923D305D?pid=invite&source=makebestmusic) Rating 9 out of 10 by [Dr. Wrinkle](https://en.wikipedia.org/wiki/Richard_Feynman)
+[Third AI attempt](https://makebestmusic.com/s/923D305D?pid=invite&source=makebestmusic) Rating 8 out of 10 by [Dr. Wrinkle](https://en.wikipedia.org/wiki/Richard_Feynman)
+
+[Fourth AI attempt](https://www.mureka.ai/song-detail/5MBXAc2hsUJKkZhfJiwFNu?is_from_share=1) Rating 8 out of 10 by P.T.
