@@ -46,4 +46,4 @@ Fuck this all
 
 [Second AI attempt](https://suno.com/s/wNoEHSPvfkqdL4Yr) Rating 6 out of 10 by P.T.
 
-[Third AI attempt](https://makebestmusic.com/s/uDDT2BQb?pid=invite&source=makebestmusic) Rating 9 out of 10 by [Dr. Wrinkle](https://en.wikipedia.org/wiki/Richard_Feynman)
+[Third AI attempt]([https://makebestmusic.com/s/uDDT2BQb?pid=invite&source=makebestmusic](https://makebestmusic.com/s/923D305D?pid=invite&source=makebestmusic)) Rating 9 out of 10 by [Dr. Wrinkle](https://en.wikipedia.org/wiki/Richard_Feynman)
