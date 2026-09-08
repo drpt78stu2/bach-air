@@ -34,7 +34,7 @@ Filled with human filth, a poison in our verse
 
 Fuck this all, a bitter fall
 
-Fuck this all, poor choices
+Fuck this all, our poor choices
 
 Oh the cancer grows in all we know
 
