@@ -38,7 +38,7 @@ Fuck this all, our poor choices
 
 Oh the cancer grows in all we know
 
-Fuck this all
+And fuck this all
 
 # A.I. attempts
 
