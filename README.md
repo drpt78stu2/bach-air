@@ -34,25 +34,9 @@ Filled with human filth, a poison in our verse
 
 Fuck this all, a bitter fall
 
-Fuck this all, a poor choice
+Fuck this all, poor choices
 
 Oh the cancer grows in all we know
-
-Fuck this all
-
-
-
-
-[The air we breathe is mildly put shit](https://gml.noaa.gov/ccgg/trends/)
-
-Filled with human filth
-
-
-
-Causing cancer
-
-
-Fuck this all
 
 Fuck this all
 
