@@ -40,6 +40,8 @@ Oh the cancer grows in all we know
 
 And one more time, just fuck it all
 
+No proof needed, just a fucking bomb
+
 # A.I. attempts
 
 [mureka AI](https://www.mureka.ai/song-detail/SZ1d8mBgYoK3iyTjgGMcmB?is_from_share=1) Rating 9 out of 10 by P.T.
