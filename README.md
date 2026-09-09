@@ -51,3 +51,7 @@ No proof needed, just a fucking bomb
 [mureka AI](https://www.mureka.ai/song-detail/5MBXAc2hsUJKkZhfJiwFNu?is_from_share=1) Rating 9 out of 10 by P.T.
 
 [mureka AI](https://www.mureka.ai/song-detail/4qGRHkuhEwfFsDeMNVi1kM?is_from_share=1) Rating 9 out of 10 by [Dr. Wrinkle](https://en.wikipedia.org/wiki/Richard_Feynman)
+
+[makebestmusic AI](https://makebestmusic.com/s/ft8Eic4A?pid=invite&source=makebestmusic) Rating 9 out of 10 by P.T.
+
+[makebestmusic AI]([https://makebestmusic.com/s/ft8Eic4A?pid=invite&source=makebestmusic](https://makebestmusic.com/s/6y8XGpO5?pid=invite&source=makebestmusic)) Rating 9 out of 10 by P.T.
