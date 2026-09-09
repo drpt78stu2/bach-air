@@ -40,7 +40,7 @@ Oh the cancer grows in all we know
 
 And one more time, just fuck it all
 
-No proof needed, just a fucking bomb
+[No proof needed](www.frontiersin.org/articles/10.3389/frai.2023.1144886), just a [fucking bomb](https://www.youtube.com/watch?v=0KAGK66nqHo&list=RD0KAGK66nqHo)
 
 # A.I. attempts
 
