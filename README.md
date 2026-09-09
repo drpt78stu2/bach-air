@@ -47,3 +47,5 @@ And one more time, just fuck it all
 [makebestmusic AI](https://makebestmusic.com/s/923D305D?pid=invite&source=makebestmusic) Rating 9 out of 10 by [Dr. Wrinkle](https://en.wikipedia.org/wiki/Richard_Feynman)
 
 [mureka AI](https://www.mureka.ai/song-detail/5MBXAc2hsUJKkZhfJiwFNu?is_from_share=1) Rating 9 out of 10 by P.T.
+
+[mureka AI](https://www.mureka.ai/song-detail/4qGRHkuhEwfFsDeMNVi1kM?is_from_share=1)
