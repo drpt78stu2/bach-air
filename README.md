@@ -50,4 +50,4 @@ No proof needed, just a fucking bomb
 
 [mureka AI](https://www.mureka.ai/song-detail/5MBXAc2hsUJKkZhfJiwFNu?is_from_share=1) Rating 9 out of 10 by P.T.
 
-[mureka AI](https://www.mureka.ai/song-detail/4qGRHkuhEwfFsDeMNVi1kM?is_from_share=1)
+[mureka AI](https://www.mureka.ai/song-detail/4qGRHkuhEwfFsDeMNVi1kM?is_from_share=1) Rating 9 out of 10 by [Dr. Wrinkle](https://en.wikipedia.org/wiki/Richard_Feynman)
