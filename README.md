@@ -54,4 +54,4 @@ No proof needed, just a fucking bomb
 
 [makebestmusic AI](https://makebestmusic.com/s/ft8Eic4A?pid=invite&source=makebestmusic) Rating 9 out of 10 by P.T.
 
-[makebestmusic AI]([https://makebestmusic.com/s/ft8Eic4A?pid=invite&source=makebestmusic](https://makebestmusic.com/s/6y8XGpO5?pid=invite&source=makebestmusic)) Rating 9 out of 10 by P.T.
+[makebestmusic AI](https://makebestmusic.com/s/6y8XGpO5?pid=invite&source=makebestmusic) Rating 9 out of 10 by P.T.
